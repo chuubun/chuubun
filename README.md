@@ -8,7 +8,7 @@
 
 </p> <p align="center">
   <img src="https://files.catbox.moe/3f4yvc.webp" width="20" />
-<p align="center"><i>«A smile better suits a hero.»</i>
+<p align="center"><i>«My love will be with you forever, my dearest children.»</i>
 
 <p align="center">
 ______________________________________________________________________________________________
